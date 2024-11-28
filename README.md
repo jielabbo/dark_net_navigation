@@ -136,7 +136,7 @@ http://d46a7ehxj6d6f2cf4hi3b424uzywno24c7qtnvdvwsah5qpogewoeqid.onion
 
 32、iPhones – Apple World
 http://appworld55fqxlhcb5vpdzdaf5yrqb2bu2xtocxh2hiznwosul2gbxqd.onion
-低价出售苹果产品，包括iPhone、iPad、Macbook、iMac、Apple Watch（全球销售），禁用暗网的虚拟货币交易
+低价出售苹果产品，包括iPhone、iPad、Macbook、iMac、Apple Watch（全球销售），禁用暗网的虚拟货币交易(诈骗网站)
 
 33、JitJat – anonymous instant messaging
 http://jitjatj3qbb42jvik4udcehxpkoidppz3gojslh7jcatuo4hx4xwayid.onion
